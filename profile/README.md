@@ -7,9 +7,7 @@
 - DataTribe is a volunteer-run data community dedicated to supporting data professionals in their career aspirations through knowledge sharing, mentorship and community support.
 
 ### **Contacts** 👩‍💼👨‍💼
-- Eevamaija Virtanen
-- Chanukya Pekala
-- Jason Edwards 
+TBD
 
 ### 🤝 Ready to Join?
 - [LinkedIn](https://www.linkedin.com/company/datatribe-collective/)
