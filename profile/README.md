@@ -1,30 +1,14 @@
-## Hi there 👋✨
+## Hi there 👋
 
+**ABOUT US**
 
-### **ABOUT US** 📊🤝
+**MISSION**
 
+**VISION**
 
-### **MISSION** 🧭🌟
-
-
-
-### **VISION** 👁️‍🗨️🏆
-
-
-
-### **WHO WE ARE** 👥🗣️
-
-#### 🛑 A Sales-Free Space
-
-
-#### 🗓️ How Our Events Work
-
-
-
-
+**WHO WE ARE**
 
 ### **Contacts** 👩‍💼👨‍💼
-
 
 **Have questions or want to get involved?** 
 ### 🤝 Ready to Join?
